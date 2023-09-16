@@ -1,5 +1,5 @@
 
-### Seja bem-vindo! Eu sou Gabriel Oliveira 🖖🇧🇷 🇪🇸 🇪🇸
+### Seja bem-vindo! Eu sou Gabriel Oliveira 🖖🇧🇷 🇺🇸 🇪🇸
 
 <P>Estudante da área de tecnologia.</P> 
 
